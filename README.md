@@ -109,7 +109,6 @@ is golden brown.
 - 3/4 lb. Monterey Jack cheese, cubed
 - 3 eggs, lightly beaten
 - 1 C. unsalted cashews
-Chocolate Lava Cake Crockpot Recipe
 
 **Directions**
 
